@@ -1,4 +1,4 @@
 This is a new file.
-Just wat to teach you how to use it.
-
-hah
+Just want to teach you how to use it.
+I want to change something.
+haha!
